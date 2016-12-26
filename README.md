@@ -1,0 +1,2 @@
+# Jajal-Lompat
+Lompat Kuda
